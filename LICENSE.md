@@ -1,4 +1,4 @@
-# 
+# hidden Scripts for escape waves for lucky blocks is the best escape waves for lucky blocks Script, featuring auto-heal and fly. Safe and powerful for
 
 
 
